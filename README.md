@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-[![img](https://imgur.com/LxEBae9)](https://omkarpathak.in)
+[![img](https://imgur.com/XCeo77M)](https://omkarpathak.in)
