@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-([https://i.imgur.com/HcaHoth.png](https://postimg.cc/ctsn07G8))
+![img](https://i.imgur.com/HcaHoth.png)
